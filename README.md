@@ -1,2 +1,1 @@
-# photography
-wedding photography
+# Portfoliowedding
